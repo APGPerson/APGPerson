@@ -5,7 +5,7 @@
 --------
 - 📫 How to reach me 
 - Wechat:APPERSON001
-- E-mail:gaogao0621@hotmail.com
+- E-mail:gaogao06211@outlook.com
 
 <!---
 APGPerson/APGPerson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
