@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 --------
 - 📫 How to reach me 
-- Wechat:APPERSON001
+
 - E-mail:gaogao06211@outlook.com
 
 <!---
